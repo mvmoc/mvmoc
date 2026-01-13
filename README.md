@@ -5,9 +5,6 @@
 <p align="center"> <img width="484" height="372" alt="Untitled2936_20260110161314" src="https://github.com/user-attachments/assets/ed07b4f0-d106-460f-9da5-3900b6fd552b" />
 </p>
 
-<p align="center">
-ᵖᶠᵖ ᵃⁿᵈ ᶠⁱʳˢᵗ ʳᵉᵖᵒˢⁱᵗᵒʳʸ ᵇᵃⁿⁿᵉʳ ᵈʳᵃʷⁿ ᵇʸ ᵐᵉ
-</p>
 
 <p align="center">
 ·͙*̩̩͙˚̩̥̩̥*̩̩̥͙　✩　*̩̩̥͙˚̩̥̩̥*̩̩͙‧͙
