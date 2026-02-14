@@ -1,22 +1,38 @@
 <p align="center">
-·͙*̩̩͙˚̩̥̩̥*̩̩̥͙　✩　*̩̩̥͙˚̩̥̩̥*̩̩͙‧͙
-  </p>
+────────────────────────────── ☆ ──꒰✉️꒱ ❞   ‧₊˚ ──────────────────────────────
+</p>
 
-<p align="center"> <img width="441" height="339" alt="Untitled2936_20260116185057" src="https://github.com/user-attachments/assets/4ecc5cab-4497-4e39-9fa9-8ae2198170b7"
+
+<p align="center"> <img width="760" height="539" alt="Untitled3035_20260214094143" src="https://github.com/user-attachments/assets/08f9f1a9-5ad2-4550-a895-b275e7ff16f1" />
 </p>
 
 
 <p align="center">
-·͙*̩̩͙˚̩̥̩̥*̩̩̥͙　✩　*̩̩̥͙˚̩̥̩̥*̩̩͙‧͙
-  </p>
-  
-<p align="center">
-𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚅𝚒𝚎𝚕, 𝚘𝚛 𝙼𝚒𝚟𝚎𝚕𝚕𝚊. 𝙸 𝚑𝚊𝚟𝚎𝚗'𝚝 𝚙𝚕𝚊𝚢𝚎𝚍 𝙿𝚃 𝚒𝚗 𝚊 𝚠𝚑𝚒𝚕𝚎 𝚜𝚘 𝙸'𝚖 𝚔𝚒𝚗𝚍 𝚘𝚏 𝚐𝚎𝚝𝚝𝚒𝚗𝚐 𝚞𝚜𝚎𝚍 𝚝𝚘 𝚒𝚝 𝚊𝚐𝚊𝚒𝚗. 𝙲𝚞𝚍𝚍𝚕𝚎 𝚊𝚗𝚍/𝚘𝚛 𝚝𝚘𝚞𝚌𝚑 𝚖𝚎 𝚏𝚛𝚎𝚎𝚕𝚢, 𝙸 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍.
+─────୨ৎ───────────✉️──────────────˚─────୨ৎ─────˚──────────────✉️─────────୨ৎ───────
+</p>
+
+<p align="left">
+<img width="601" height="539" alt="Untitled3040_20260214093204" src="https://github.com/user-attachments/assets/8d5969e8-7e61-4ce0-a763-ab24225aea02" />
 </p>
 
 <p align="center">
-︶꒦꒷♡꒷꒦︶
-  </p>
+ꪜ꠸ꫀꪶ / ꪑ꠸ꪜꫀꪶꪶꪖ
+</p>
+
+
+<p align="center">
+<a href="(https://mvmoc.straw.page)">strawpage</a>
+</p>
+
+
+
+<p align="right">
+<img width="601" height="539" alt="Untitled3040_20260214093436" src="https://github.com/user-attachments/assets/831b09da-f18e-4414-b849-0989cbab5e7a" />
+</p>
+
+<p align="center">
+✉️  ─────────  ۶ৎ   ─────────  ⋆.˚ ★—⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹—★ ˚.⋆   ─────────  ۶ৎ  ─────────  ✉️ 
+</p>
 
 <p align="center"> <img width="870" height="435" src="https://cdn.discordapp.com/attachments/1459659313630019626/1467189833591164938/Untitled2978_20260131100827.png?ex=697f7a83&is=697e2903&hm=35cd4d5edc5c22e00ad8d2d4a5d3e53c0224871de28875223002623dc0fd0b85"
 </p>
