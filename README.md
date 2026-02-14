@@ -21,7 +21,7 @@
 
 
 <p align="center">
-<a href="(https://mvmoc.straw.page)">strawpage</a>
+<a href="[https://mvmoc.straw.page]">strawpage</a>
 </p>
 
 
@@ -32,7 +32,4 @@
 
 <p align="center">
 ✉️  ─────────  ۶ৎ   ─────────  ⋆.˚ ★—⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹—★ ˚.⋆   ─────────  ۶ৎ  ─────────  ✉️ 
-</p>
-
-<p align="center"> <img width="870" height="435" src="https://cdn.discordapp.com/attachments/1459659313630019626/1467189833591164938/Untitled2978_20260131100827.png?ex=697f7a83&is=697e2903&hm=35cd4d5edc5c22e00ad8d2d4a5d3e53c0224871de28875223002623dc0fd0b85"
 </p>
